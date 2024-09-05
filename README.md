@@ -11,3 +11,6 @@ Meu nome é Gabriel Xavier
 ### Você entrar em contato comigo 📫
 
 gabriel.xavier12@escola.pr.gov.br
+
+
+![](https://media1.tenor.com/m/RrXsGhXSBDUAAAAC/ok-thumbs-up.gif)
