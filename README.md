@@ -13,4 +13,4 @@ Meu nome é Gabriel Xavier
 gabriel.xavier12@escola.pr.gov.br
 
 
-![](https://media1.tenor.com/m/RrXsGhXSBDUAAAAC/ok-thumbs-up.gif)
+![](https://media1.tenor.com/m/cMqpZFk33fwAAAAd/grande-dia-bolsonaro.gif)
